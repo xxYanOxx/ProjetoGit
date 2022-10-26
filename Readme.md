@@ -1,4 +1,11 @@
-Olá Devs 
-Novo por aqui aprendendo ainda a usar a plataforma...
+# Olá Todos 👋
 
-Primeira alteração
+xxYanOxx Novo por aqui
+ 
+ 
+🌱 Atualmente estou aprendendo
+ 🧑‍💻 Futuro Dev Full Stack 
+ 📫 Como entrar em contato comigo: yanos2@hotmail.com
+ Obrigado
+ 
+
